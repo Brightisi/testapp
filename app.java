@@ -1,0 +1,7 @@
+bright
+obi
+ben
+amaka
+
+
+
